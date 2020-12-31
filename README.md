@@ -1,14 +1,10 @@
 # Pheeranut First—@firstject
 
-![Anime GIFs - Find & Share on GIPHY](https://media2.giphy.com/media/FIZ1QC610AAhi/giphy.gif)
-
-You guys are amazing! Just saying. 😅
-
 ## Connect with me:
 
 - [Youtube](https://www.youtube.com/channel/UCaHynsX2m3E0pwX1LlZkPCQ)
 - [Reddit](https://www.reddit.com/user/Firstject)
-- Discord: `Snowflakes#1200`
+- Discord: `Firstject#1200`
 
 ---
 
