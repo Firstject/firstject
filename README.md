@@ -4,7 +4,6 @@
 
 - [Youtube](https://www.youtube.com/channel/UCaHynsX2m3E0pwX1LlZkPCQ)
 - [Reddit](https://www.reddit.com/user/Firstject)
-- Discord: `Firstject#1200`
 
 ---
 
