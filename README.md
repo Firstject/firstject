@@ -1,4 +1,4 @@
-# Pheeranut First—@firstject
+# Peeranut First—@firstject
 
 ## Connect with me:
 
